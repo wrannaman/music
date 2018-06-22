@@ -14,4 +14,4 @@
 
 # AI Assisted Sounds and Stories.
 
-Join the [Wrannaman collective](http://wrannaman.com)
+Join the [Wrannaman collective](http://www.wrannaman.com)
